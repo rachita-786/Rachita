@@ -8,7 +8,7 @@
 <br>
 - 📫 How to reach me **rachitabhasin99@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1CAA7FR_bjE_PECVg4cWfZilbJ1S8EjZK/view?usp=sharings](https://drive.google.com/file/d/1CAA7FR_bjE_PECVg4cWfZilbJ1S8EjZK/view?usp=sharings)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Bm-NA6mNE_yOqwrOXFpRUHmhNUp4mREs/view)
 
 - ⚡ Fun fact **I am funny 😁**
 
